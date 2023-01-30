@@ -1,5 +1,5 @@
 ### I saluti 👋
-Beginner java developer
+Beginner Java-developer
 <br />
 [Telegram](https://t.me/VADIMKVLT)
 <br />
