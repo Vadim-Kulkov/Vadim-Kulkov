@@ -1,4 +1,4 @@
-### I saluti 👋
+### Salute! 👋
 Beginner Java-developer
 <br />
 [Telegram](https://t.me/VADIMKVLT)
