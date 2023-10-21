@@ -5,4 +5,4 @@ Beginner Java-developer
 <br />
 [vabim15456@gmail.com](vabim15456@gmail.com)
 <br />
-[VK](https://m.vk.com/v8d8mk8lk8v)
+[HH.ru](hh.ru/resume/dcbfc81aff0b60f3040039ed1f41596a573236)
